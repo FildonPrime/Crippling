@@ -1,2 +1,2 @@
-# Special Bot inProgress for Crippling Community. 
+# Special Bot inProgress for Crippling Anxiety DiscordCommunity. 
 
